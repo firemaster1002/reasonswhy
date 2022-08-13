@@ -3,10 +3,10 @@
 # So, los geht's!
 
 
-###**1 - Just yourself** </>
+### **1 - Just yourself**
 This one is tough to explain. Being Caro is just something impossible to not like.
 
-###**2 - Honesty** </>
+### **2 - Honesty**
 You're a source of honesty. When something is going on, you always tell me what is going on.
 
 
