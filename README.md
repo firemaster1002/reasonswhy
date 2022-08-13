@@ -1,23 +1,23 @@
 # The 22071997 reasons I like you so much
 
-# Here you have a reminder why you are such an incredible person!
+## Here you have a reminder why you are such an incredible person!
 
-## So, los geht's!
+### So, los geht's!
 
 
-### **1 - Just yourself**
+#### **1 - Just yourself**
 This one is tough to explain. Being Caro is just something impossible to not like.
 
-### **2 - Honesty**
+#### **2 - Honesty**
 You're a source of honesty. When something is going on, you always tell me what is going on.
 
-### **3 - Ladybug**
+#### **3 - Ladybug**
 Besides not having wings and not being red (well, in summer that is discussable), you can still make me smile with both heart and face as a tiny and cute ladybug!
 
-### **4 - Blue Ocean Eyes**
+#### **4 - Blue Ocean Eyes**
 We are not living close to the sea and that makes me feel really far away from home. Even though, your eyes penetrate in my heart and bring the blue and deep ocean to my daily life. You make me feel home! 
  
-### _Stay tuned..._
+#### _Stay tuned..._
 
 
 
