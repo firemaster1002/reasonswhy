@@ -10,7 +10,7 @@
 This one is tough to explain. Being Caro is just something impossible to not like.
 
 #### **2 - Honesty**
-You're a source of honesty. When something is going on, you always tell me what is going on.
+You're a source of honesty. When something is going on, you always tell me what's up!
 
 #### **3 - Ladybug**
 Besides not having wings and not being red (well, in summer that is discussable), you can still make me smile with both heart and face as a tiny and cute ladybug!
