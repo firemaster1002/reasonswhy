@@ -4,7 +4,7 @@
 
 ### So, los geht's!
 
-![Image](1.jpeg)
+![Image](2.jpeg)
 
 #### **1 - Just yourself**
 This one is tough to explain. Being Caro is just something impossible to not like.
@@ -20,7 +20,7 @@ We are not living close to the sea and that makes me feel really far away from h
  
 #### _Stay tuned..._
 
-
+![Image](3.jpeg)
 
 <!--- List
 
