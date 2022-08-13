@@ -4,6 +4,7 @@
 
 ### So, los geht's!
 
+![Image] (1.jpeg)
 
 #### **1 - Just yourself**
 This one is tough to explain. Being Caro is just something impossible to not like.
