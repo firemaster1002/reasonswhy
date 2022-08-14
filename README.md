@@ -21,6 +21,8 @@ We are not living close to the sea and that makes me feel really far away from h
 #### **5 - Teddy Master**
 I think this one does not need any explanation. Taking care of Teddy, Malaquias and even sometimes Vasquinho is not a easy task, but you rock it!
 
+![Image](6.jpg)
+
 #### _Stay tuned..._
 
 ![Image](3.jpeg)
