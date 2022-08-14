@@ -19,7 +19,7 @@ Besides not having wings and not being red (well, in summer that is discussable)
 We are not living close to the sea and that makes me feel really far away from home. Even though, your eyes penetrate in my heart and bring the blue and deep ocean to my daily life. You make me feel home! 
 
 #### **5 - Teddy Master**
-I think this one does not need any explanation. Taking care of Teddy, Malaquias and even sometimes Vasquinho is not a easy task, but you rock it!
+I think this one does not need any explanation. Taking care of Teddy, Malaquias and even sometimes Vasquinho is not an easy task, but you rock it!
 
 ![Image](6.jpg)
 
