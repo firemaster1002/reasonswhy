@@ -26,6 +26,9 @@ I think this one does not need any explanation. Taking care of Teddy, Malaquias 
 #### **6 - Lasagne**
 The best lasagne I have ever had in my life. It was not only the bechamel that melted. Also my heart!
 
+#### **7 - Emily in Paris**
+Usually, I don't like those kind of series. In fact, I don't like series that much. But I love to watch it with you!
+
 #### _Stay tuned..._
 
 ![Image](3.jpeg)
