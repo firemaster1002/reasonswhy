@@ -29,6 +29,12 @@ The best lasagne I have ever had in my life. It was not only the bechamel that m
 #### **7 - Emily in Paris**
 Usually, I don't like those kind of series. In fact, I don't like series that much. But I love to watch it with you!
 
+#### **8 - Paulaner Spezi**
+If it was not you, how would I found about this magic mix?
+
+#### **9 - Kebap**
+Just date a girl that asks you to go to kebap places.
+
 #### _Stay tuned..._
 
 ![Image](3.jpeg)
