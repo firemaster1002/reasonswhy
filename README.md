@@ -23,7 +23,7 @@ I think this one does not need any explanation. Taking care of Teddy, Malaquias 
 
 ![Image](6.jpg)
 
-#### **6 - Lasagne **
+#### **6 - Lasagne**
 The best lasagne I have ever had in my life. It was not only the bechamel that melted. Also my heart!
 
 #### _Stay tuned..._
