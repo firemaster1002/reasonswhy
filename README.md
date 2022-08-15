@@ -35,13 +35,13 @@ If it was not you, how would I find about this magic mix?
 #### **9 - Kebap**
 Just date a girl that asks you to go to kebap places.
 
-#### **10 - 1.0 Sehr Gut **
+#### **10 - 1.0 Sehr Gut**
 No need.
 
 #### **11 - Traveller**
 Going for the world, enjoying what it has to give to us!
 
-#*HAVE A NICE FLIGHT*#
+#*HAVE A NICE FLIGHT*
  
 #### _Stay tuned..._
 
