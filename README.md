@@ -44,7 +44,7 @@ Going for the world, enjoying what it has to give to us!
 #### **12 - Easter, Birthday and Christmas together**
 You're better than that, of course.
 
-# *HAVE A NICE FLIGHT*
+# *Enjoy Vietnam!*
  
 #### _Stay tuned..._
 
