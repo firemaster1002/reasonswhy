@@ -44,6 +44,21 @@ Going for the world, enjoying what it has to give to us!
 #### **12 - Easter, Birthday and Christmas together**
 You're better than that, of course.
 
+#### **13 - Ice, Eis or Ice-cream?**
+Well, what you call it does not matter; what matters is that we are the Balla Beni best clients!
+
+#### **14 - Tennis**
+Who else makes me play tennis at 8 in the morning?
+
+#### **15 - Schokocroissant für uns!**
+This one is easy!
+
+#### **16 - Briefe von Felix**
+The one and only that has the patience to listen to my german language practice sessions
+
+#### **17 - Notarzt specialist**
+1200€ is quite a lot, rigth?
+
 # *Enjoy Vietnam!*
  
 #### _Stay tuned..._
