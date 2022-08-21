@@ -59,6 +59,12 @@ The one and only that has the patience to listen to my german language practice 
 #### **17 - Notarzt specialist**
 1200€ is quite a lot, rigth?
 
+#### **18 - Creme Brûlée**
+Because a perfect lasagna can't come alone
+
+#### **19 - The Swing Girl**
+How to prepare better for kids than going with you to the swing?*
+
 # *Enjoy Vietnam!*
  
 #### _Stay tuned..._
