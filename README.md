@@ -63,7 +63,7 @@ The one and only that has the patience to listen to my german language practice 
 Because a perfect lasagna can't come alone
 
 #### **19 - The Swing Girl**
-How to prepare better for kids than going with you to the swing?*
+How to prepare better for kids than going with you to the swing?
 
 # *Enjoy Vietnam!*
  
