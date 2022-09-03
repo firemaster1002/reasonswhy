@@ -64,9 +64,14 @@ Because a perfect lasagna can't come alone
 
 #### **19 - The Swing Girl**
 How to prepare better for kids than going with you to the swing?
-
-# *Enjoy Vietnam!*
  
+
+#### **20 - Massages**
+Who else could help me improve my massages?
+
+#### **21 - Early Bird**
+Better than waking up early, is having your perfect eyes and smile next to me when waking up
+
 #### _Stay tuned..._
 
 ![Image](3.jpeg)
