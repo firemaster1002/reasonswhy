@@ -73,12 +73,12 @@ Better than waking up early, is having your perfect eyes and smile next to me wh
 
 #### _DO YOU WANT TO BE MY GIRLFRIEND?... 
 
-#### ***She said yes!!!***
+#### **She said yes!!!**
 
 ![Image](3.jpeg)
 
-#### ***Merry Christma, Ladybug!
-![Gutschein970575099.pdf] (https://github.com/firemaster1002/reasonswhy/files/13725328/Gutschein970575099.pdf)
+#### **Merry Christma, Ladybug!**
+![Gutschein970575099.pdf]
 
 
 <!--- List
