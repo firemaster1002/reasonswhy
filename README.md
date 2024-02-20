@@ -71,14 +71,7 @@ Who else could help me improve my massages?
 #### **21 - Early Bird**
 Better than waking up early, is having your perfect eyes and smile next to me when waking up
 
-#### _DO YOU WANT TO BE MY GIRLFRIEND?... 
-
-#### **She said yes!!!**
-
 ![Image](3.jpeg)
-
-#### **Merry Christma, Ladybug!**
-![Image](Gutschein970575099.pdf)
 
 
 <!--- List
